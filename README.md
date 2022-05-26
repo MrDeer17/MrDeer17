@@ -4,5 +4,5 @@
 - If you need to contact me:
 Discord: Sundew#5313
 YouTube: https://www.youtube.com/channel/UCKlf84CSBY2Ul3v3nl7Bicw
-VK: vk.com/mrdeer17
+VK: https://vk.com/mrdeer17
 Telgramm: https://t.me/mrdeer17
