@@ -7,10 +7,15 @@ Looking forward to learning the following languages: **C++**, **C**, **Assembler
 
 
 *If you need to contact me, you can find me on:*
+
 Discord: DESXRA#5313
+
 YouTube: https://www.youtube.com/channel/UCKlf84CSBY2Ul3v3nl7Bicw
+
 VK: https://vk.com/desxra
+
 Telgramm: https://t.me/mrdeer17
+
 
 
 **Keep in mind that my time zone is UTC+3**
